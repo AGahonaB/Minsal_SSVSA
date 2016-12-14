@@ -1,0 +1,1 @@
+# Minsal_SSVSA
